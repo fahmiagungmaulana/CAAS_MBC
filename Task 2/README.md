@@ -6,5 +6,5 @@
 
 
 Oleh:
-Alfarelzi
-Fahmi Agung Maulana
+1. Alfarelzi
+2. Fahmi Agung Maulana
